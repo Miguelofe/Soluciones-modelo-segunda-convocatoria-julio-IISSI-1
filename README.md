@@ -1,1 +1,0 @@
-# Soluciones-modelo-segunda-convocatoria-julio-IISSI-1
